@@ -1,4 +1,4 @@
 # Slava Mitsevich
-
-## Contacts
+### Warsaw, Poland
+## Contacts:
 # slava.micevich@mail.ru
